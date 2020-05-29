@@ -1,0 +1,2 @@
+# -Olzhkrv-MDKAZNU
+Diploma Project
